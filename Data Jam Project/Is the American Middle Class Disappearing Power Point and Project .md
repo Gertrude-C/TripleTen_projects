@@ -1,4 +1,4 @@
-# Is the American Middle Class Disappearing? Data Jam Project 
+# Is the American Middle Class Disappearing? 
 
 **[Is the American Middle Class Disappearing? PowerPoint](https://docs.google.com/presentation/d/1tm9Ka4jkClxf8IBr6TEEeHUBxffNsw55oxvnDCc05KY/edit?usp=sharing)**
 
